@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Fishboi210 ✨
+- 👀 I’m interested in--> python,html,css,js and js react ✨
+- 🌱 I’m currently learning--> html,css and js ✨
+- 💞️ I’m looking to collaborate on--> web design and game design ✨
+- 📫 How to reach me -->  jmyon0210@gmail.com ✨
